@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @yfk7
+- 📫 How to reach me: feitosakawauchiyago@gmail.com 
